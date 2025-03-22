@@ -11,4 +11,5 @@ Some simple experiments trying to simulate tai chi "push hands"
 
 - To be honest, I think tai chi "push hands" is really difficult to model computationally!
 - It would be simpler to start with just tai chi standing meditation, and walking, where the exercise is "push feet", and the oppent is "mother Earth"
-- Deepseek R1 is the best source for advice !!! Much better than (most) human YouTube Videos 
+- Deepseek R1 is the best source for advice !!! Much better than (most) human YouTube Videos
+- Qi Gong is simpler than Tai Chi, and teaches the basic princples !!! Tai Chi is more complex and applies the basic principles
