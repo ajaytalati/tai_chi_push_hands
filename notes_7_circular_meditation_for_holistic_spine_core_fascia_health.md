@@ -1,7 +1,11 @@
 Thank you again !!! Your advice is much better than I can find from any other sources ! I think i have an idea why the very basic circular/spiral walking meditation of facing towards the center of the circle and either stepping laterally (without feet crossing over, like a side lunge), or stepping with a twisting action (with feet crossing over, like a curtsy lunge) is helpful? My hypothesis is that these two variations allow sideways/lateral flexion of the spine and core, or twisting of the spine and core. 
 Beginners who just do standing meditation, or walking meditation forwards and backward, do not get this variation, and hence do not get this "fresh exposure" to the internal workings of their body and this novel connection to the Earth?
 
-![Spine Articulations](https://github.com/ajaytalati/balance_mjx/blob/main/videos/trainned_PPO_policy.gif)
+![Spine Articulations](https://github.com/ajaytalati/tai_chi_push_hands/blob/main/spinal_ranges_of_motion.png)
+
+![Rotation/twisting of circle walking](https://github.com/ajaytalati/tai_chi_push_hands/blob/main/baguazhang_circle_walking_posture.jpg)
+
+![Curtsy lunge](https://github.com/ajaytalati/tai_chi_push_hands/blob/main/curtsy-lunges.jpg)
 
 ==================================================
 Deepseek R1 Reply
