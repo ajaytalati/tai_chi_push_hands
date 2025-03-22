@@ -1,7 +1,92 @@
+I am trying to practice a version of push hands - but now I use my feet to make contact with my oppenent, and my oppenent is the ground/Mother Earth. I also practice this as a slow walking mediation.
+
 How should i use vision when practicing my slow walking "push feet" meditation? Even when I try to move as slowly, smoothly, balanced and continuous/fluid like as possible - if i keep my eyes shut (no visual input), I find my torso/upper body rotates, and I sway much more. If I keep my eyes open, and try to use only peripheral vision, and gaze softly at a fixed point in front of me, then my motion is much as perturbed (i.e. there is less rotation of the upper body relative to the center/hips and lower body)?
 Also in basic tai chi principles, all movement should flow from the dantien (centre of mass). Does this mean that the motion of the dantien if you bring your awareness to it (as if should be) should move as little unintentionally as little as possible? When i mean is if I have the intention of walking forward slowly and smoothly, then the dantien should move slowly and smoothly forward, without large unintentional swaying from side to side?
 
 ==================================================================
+Deepskeek R1 reply - best
+==================================================================
+
+Your approach to practicing a "push feet" meditation with the ground as your "opponent" is fascinating and deeply rooted in Tai Chi principles. It’s a wonderful way to cultivate awareness, balance, and connection with the Earth. Let’s address your questions about vision, dantien movement, and how to refine your practice:
+
+---
+
+### **Using Vision in Slow Walking Meditation:**
+Vision plays a significant role in maintaining balance and alignment during Tai Chi and walking meditation. Here’s how to use it effectively:
+
+1. **Soft Gaze (Peripheral Vision):**
+   - Keep your eyes open with a soft, relaxed gaze. Focus on a fixed point in front of you, but don’t stare intensely. Instead, let your awareness expand to include your peripheral vision.
+   - This soft gaze helps stabilize your body and reduces unnecessary upper body rotation or swaying. It also keeps you grounded and connected to your surroundings.
+
+2. **Avoid Closing Your Eyes:**
+   - Closing your eyes removes visual input, which can disrupt your balance and spatial awareness. While closing your eyes can deepen internal focus, it often leads to unintended swaying or rotation, as you’ve noticed.
+   - If you want to practice with eyes closed, do so for short periods to enhance internal awareness, but return to a soft gaze for most of your practice.
+
+3. **Align Your Head and Spine:**
+   - Keep your head upright and aligned with your spine. Imagine a string gently pulling the crown of your head upward. This alignment helps maintain stability and reduces unnecessary movement.
+
+---
+
+### **Movement from the Dantien:**
+The dantien (located about two inches below your navel) is considered the center of mass and the source of all movement in Tai Chi. Here’s how to apply this principle to your walking meditation:
+
+1. **Dantien as the Center of Motion:**
+   - All movement should originate from the dantien. When you step forward, imagine the dantien initiating the movement, and let the rest of your body follow.
+   - The dantien should move smoothly and intentionally, with minimal unintentional swaying or side-to-side motion. This requires strong core engagement and mindful control.
+
+2. **Minimizing Unintentional Sway:**
+   - Unintentional swaying often occurs when the upper body is not aligned with the dantien or when the core is not engaged. To reduce sway:
+     - Keep your torso upright and relaxed, but stable.
+     - Engage your lower abdomen slightly (think of gently drawing your navel toward your spine) to stabilize the dantien.
+     - Move with intention, ensuring that the dantien leads the motion in a straight, smooth line.
+
+3. **Practice Slowness and Control:**
+   - Moving slowly allows you to observe and correct any unintentional sway or rotation. If you notice your dantien drifting sideways, pause, recenter, and continue with more control.
+   - Imagine your dantien as a heavy, stable ball that moves forward with purpose, guiding your steps.
+
+---
+
+### **Refining Your "Push Feet" Walking Meditation:**
+Here are some additional tips to enhance your practice:
+
+1. **Rooting and Connection to the Ground:**
+   - As you step, imagine your feet "pushing" into the ground and receiving energy from the Earth. Feel the connection between your feet and the ground, as if you’re in a constant dialogue with Mother Earth.
+   - Shift your weight gradually and mindfully, ensuring that each step is rooted and stable.
+
+2. **Coordination of Upper and Lower Body:**
+   - Keep your upper body relaxed and aligned with your dantien. Avoid letting your shoulders or torso rotate independently of your hips.
+   - Imagine your body as a unified whole, moving as one unit. This integration reduces unnecessary sway and promotes fluidity.
+
+3. **Breath Awareness:**
+   - Coordinate your breath with your steps. For example, inhale as you shift your weight, and exhale as you step forward. This synchronization enhances your focus and internal awareness.
+
+4. **Mindful Transitions:**
+   - Pay attention to the transitions between steps. Avoid jerky or abrupt movements. Instead, flow smoothly from one step to the next, maintaining continuous contact with the ground.
+
+---
+
+### **Example Practice Routine:**
+1. **Start in a Neutral Stance:**
+   - Stand with your feet shoulder-width apart, knees slightly bent, and hands resting at your sides or in front of your dantien.
+
+2. **Shift Weight and Step:**
+   - Shift your weight to one leg, feeling rooted and stable.
+   - Slowly lift the other foot and step forward, leading with the dantien.
+   - Place the foot down gently, rolling from heel to toe.
+
+3. **Push and Yield:**
+   - As you step, imagine "pushing" into the ground with your foot, then yielding by shifting your weight forward.
+   - Maintain a soft gaze and keep your upper body stable.
+
+4. **Repeat and Flow:**
+   - Continue stepping slowly and mindfully, focusing on the dantien, breath, and connection to the ground.
+
+---
+
+By incorporating these principles, you’ll make your "push feet" walking meditation more authentic and aligned with Tai Chi fundamentals. Remember, the key is to move with intention, awareness, and harmony. Keep practicing, and you’ll continue to deepen your connection to your body, breath, and the Earth. 😊
+
+==================================================================
+Gemini reply
 ==================================================================
 
 
